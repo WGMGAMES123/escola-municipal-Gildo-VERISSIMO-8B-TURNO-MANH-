@@ -1,0 +1,38 @@
+---
+created: 2022-09-23T08:44:00-03:00
+modified: 2022-09-23T08:53:19-03:00
+---
+
+# JORNAL UOL
+
+![Image](./6edca7250cf555299cb67146a0183c7c.jpg) 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+vice-procuradora-geral da República, Lindôra Araújo, pediu hoje ao STF (Supremo Tribunal Federal) que arquive um processo em que o senador Randolfe Rodrigues (Rede Sustentabilidade) pede a abertura de inquérito para investigar o presidente Jair Bolsonaro (PL) por supostos crimes na Petrobras.... - Veja mais em https://noticias.uol.com.br/politica/ultimas-noticias/2022/09/22/pgr-pede-fim-de-acao-sobre-suposta-interferencia-de-bolsonaro-na-petrobras.htm?cmpid=copiaecola
+
+
+
+
+
+
+
+ação foi iniciada depois de o portal Metrópoles divulgar uma troca de mensagens vazadas de um grupo de WhatsApp em que ex-presidente da estatal Roberto Castello Branco diz ao ex-presidente do Banco do Brasil Rubem Novaes que "tinha mensagens e áudios que poderiam incriminar" o chefe do Executivo... - Veja mais em https://noticias.uol.com.br/politica/ultimas-noticias/2022/09/22/pgr-pede-fim-de-acao-sobre-suposta-interferencia-de-bolsonaro-na-petrobras.htm?cmpid=copiaecola
