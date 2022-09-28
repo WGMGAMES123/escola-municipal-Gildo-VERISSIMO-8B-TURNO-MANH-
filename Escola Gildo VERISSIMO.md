@@ -1,9 +1,9 @@
 ---
 created: 2022-09-28T08:40:49-03:00
-modified: 2022-09-28T08:42:23-03:00
+modified: 2022-09-28T08:45:00-03:00
 ---
 
-# Escola Gildo VERISSIMO
+# ##Á Moreninha
 
 a moreninha). Tudo começa quando Augusto, Leopoldo e Fabrício são convidados por Filipe para passar o feriado de Sant’Ana na casa de sua avó. Os quatro amigos estudantes de medicina vão para a Ilha passar o feriado e lá encontram D. Ana, a anfitriã, duas amigas, a irmã de Filipe, D. Carolina e suas primas Joana e Joaquina. Antes de partirem Filipe havia feito uma aposta com Augusto: se este voltasse da Ilha sem ter se apaixonado verdadeiramente por uma das meninas, Filipe escreveria um romance por ter perdido a aposta. Caso se apaixonasse, Augusto é quem deveria escrevê-lo.
 
